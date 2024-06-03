@@ -1,0 +1,1 @@
+### %USERPROFILE%\Saved Games\Quantic Dream\Detroit Become Human
